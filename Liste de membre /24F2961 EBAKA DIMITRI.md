@@ -2,7 +2,7 @@
 
 ## Informations personnelles
 
-Nom et prenom: EBAKA DIMITRI
+Nom et prenom: EBAKA ETOUGUE YVES DIMITRI
 
 Matricule : 24F2961
 
